@@ -1,1 +1,0 @@
-# leitfaden-schulhund
